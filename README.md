@@ -4,8 +4,7 @@
 - 💞️ I’m looking to collaborate on creative products and projects.
 - 📫 How to reach me is by my LinkedIn - at aaron-greenspan. 
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I love photography and have a twin sister. I hold a B.A. in Media, Information and Technology from Western University, and a Certificate in Marketing Management from Dalhousie University.
-
+- ⚡ Fun fact: I have directed 10 official TED talks.
 <!---
 LEWYSLENS/LEWYSLENS is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
