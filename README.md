@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Aaron @LEWYSLENS Greenspan.
+- 👋 Hi, I’m Aaron L Greenspan.
 - 👀 I’m interested in digital management, marketing, media, product, entreprenuership, transformation and innovation.
 - 🌱 I’m currently learning product management at BrainStation.
 - 💞️ I’m looking to collaborate on creative products and projects.
